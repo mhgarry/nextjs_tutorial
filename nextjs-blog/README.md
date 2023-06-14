@@ -1,1 +1,1 @@
-# Next Tutorial
+# Next Blog
